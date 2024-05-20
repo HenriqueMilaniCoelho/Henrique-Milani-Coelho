@@ -8,5 +8,5 @@ Meu nome é Henrique Milani Coelho
 
 
  
-### voce entrar em contata comigo
+### voce pode entrar em contata comigo
 henmilcoe@gmail.com
